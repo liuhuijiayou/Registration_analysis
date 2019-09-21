@@ -36,19 +36,19 @@
 >&ensp;&ensp;&ensp;&ensp;灰虎网，真的特别好，我看里边资料特别全，有时间的话可以**快速**过一遍本科课件讲义里面的杨鸿文老师的通信原理经典讲义，下面是网站链接：
 >+ 资料下载：http://www.hhkaoyan.com/file/index.html
 >+ 导师信息：http://www.hhkaoyan.com/teacher/major.html
->+ 801真题及答案：
+>+ 801真题及答案：<br>
 >链接：https://pan.baidu.com/s/1mXKKjEdPgswDh77VJQhAKw 
 >提取码：xxap 
 >复制这段内容后打开百度网盘手机App，操作更方便哦
->+ 801雪山灰虎2016年视频链接：
+>+ 801雪山灰虎2016年视频链接：<br>
 >https://pan.baidu.com/s/1BepAzLqe9ja8c3y_tL9HzA 
 >提取码：syqf 
 >复制这段内容后打开百度网盘手机App，操作更方便哦
->+ 杨鸿义老师讲义：
+>+ 杨鸿义老师讲义：<br>
 >  链接：https://pan.baidu.com/s/1zakqy3Q0ZRaxPXmHU0UKSg 
 >  提取码：dlbz 
 >  复制这段内容后打开百度网盘手机App，操作更方便哦
->+ 英语一作文模板（2019）年:
+>+ 英语一作文模板（2019）年:<br>
 >链接：https://pan.baidu.com/s/1aa0DXO8RakVpK3E5oeEP7Q 
 >提取码：fpdj 
 >复制这段内容后打开百度网盘手机App，操作更方便哦
